@@ -14,6 +14,7 @@
 - 🌱 I’m currently learning **C#**
 
 - 📫 How to reach me **randunukaushalya43@gmail.com**
+- - 📫 How to reach me **rkimpressions123@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
